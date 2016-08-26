@@ -19,4 +19,6 @@ What kind of skin type that you have? In assuming that you already knew what ski
 
 The easiest way to choose best product type for your skin, check whether that certain product has good sun protection agent or not, if it is not, leave it. 
 
-Source: <a href="http://2plusbeauty.com/skin-care-products/">http://2plusbeauty.com/skin-care-products/</a>
+Source:
+<a href="http://journalbeauty.com/skin-care">http://journalbeauty.com/skin-care/</a>
+<a href="http://journalbeauty.com/skin-care-products-for-combination-skin/">http://journalbeauty.com/skin-care-products-for-combination-skin/</a>
