@@ -21,6 +21,6 @@ The easiest way to choose best product type for your skin, check whether that ce
 
 Source:
 
-<a href="http://journalbeauty.com/skin-care">http://journalbeauty.com/skin-care/</a>
+<a href="http://faraya.org/skin-care">http://faraya.org/skin-care/</a>
 
-<a href="http://journalbeauty.com/skin-care-products-for-combination-skin/">http://journalbeauty.com/skin-care-products-for-combination-skin/</a>
+<a href="http://faraya.org/combination-skin-care/">http://faraya.org/combination-skin-care/</a>
