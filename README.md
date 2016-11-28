@@ -1,6 +1,7 @@
 <a href="https://github.com/mbakdesy/best-skin-care-products-for-sensitive-skin/">What's the best skin care product for your skin</a>? Before asking this, you should understand that what kind of skin condition that you have. Generally, there are there types of skin conditions such as combination skin, oily skin, and also dry skin. However, noticing those previously mentioned aren’t enough for the reason that there are some other rare conditions such as sun damage, rosacea, and many other more. You have also to consider some other factors to figure out your skin condition, therefore you know what kind of skin care product to buy, like stress that influence hormonal change, age, weather, and many other more.
 
- You might also like: <a href="https://github.com/mbakdesy/Best-Laptops-For-College-Students-Under-1000">best laptops for college students under 1000</a>
+Further Reading: http://journalbeauty.com/skin-care/
+
 
 And yes, prior you directly go to store to choose skin care product types(click here to learn more) that will improve the healthiness of your skin, you have to know what kind of material that you should avoid as it can  cater more problem to your skin, and talk about the materials to hinder, it includes;
 
@@ -19,8 +20,8 @@ What kind of skin type that you have? In assuming that you already knew what ski
 
 The easiest way to choose best product type for your skin, check whether that certain product has good sun protection agent or not, if it is not, leave it. 
 
-Source:
 
-<a href="http://faraya.org/skin-care">http://faraya.org/skin-care/</a>
 
-<a href="http://faraya.org/combination-skin-care/">http://faraya.org/combination-skin-care/</a>
+
+
+ You might also like: <a href="https://github.com/mbakdesy/Best-Laptops-For-College-Students-Under-1000">best laptops for college students under 1000</a>
