@@ -18,12 +18,12 @@ What kind of skin type that you have? In assuming that you already knew what ski
     If you have combination skin, then ensure that you put your option to kind of skin care product in liquid, serum, gel, and also lotion.
     If you deal with certain skin condition like sensitive skin, such as sun damage condition, choose types of skin care products in cream, lotion, serum, gel, and more.
 
-The easiest way to choose best product type for your skin, check whether that certain product has good sun protection agent or not, if it is not, leave it. 
+The easiest way to choose best product type for your skin, check whether that certain product has good sun protection agent or not, if it is not, leave it. <br>
 
 
 
 
 
- You might also like:
+ You might also like:<br>
  <a href="https://github.com/majujalan/Best-High-Frequency-Facial-Machine/">Some choices of Best facial machines(devices/equipments) for home use every women should have</a><br>
  <a href="https://github.com/mbakdesy/Best-Laptops-For-College-Students-Under-1000">best laptops for college students under 1000</a>
