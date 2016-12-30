@@ -25,5 +25,5 @@ The easiest way to choose best product type for your skin, check whether that ce
 
 
  You might also like:
- <a href="https://github.com/majujalan/Best-High-Frequency-Facial-Machine/">Some choices of Best facial machines(devices/equipments) for home use every women should have</a>
+ <a href="https://github.com/majujalan/Best-High-Frequency-Facial-Machine/">Some choices of Best facial machines(devices/equipments) for home use every women should have</a><br>
  <a href="https://github.com/mbakdesy/Best-Laptops-For-College-Students-Under-1000">best laptops for college students under 1000</a>
